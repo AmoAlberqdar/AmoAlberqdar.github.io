@@ -1,1 +1,0 @@
-# AmoAlberqdar.github.io
